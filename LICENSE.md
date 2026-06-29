@@ -1,4 +1,4 @@
-
+jujutsu infinite advanced Script is the best jujutsu infinite Script, featuring no cooldown and auto-collect. Safe and powerful for all your needs.
 
 
 
